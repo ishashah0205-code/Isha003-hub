@@ -1,6 +1,4 @@
 ![isha](https://github.com/user-attachments/assets/77e000c6-781d-46aa-ac42-96e60d220c5a)
-
-![isha](https://github.com/user-attachments/assets/77e000c6-781d-46aa-ac42-96e60d220c5a)
 # 👋 Hi, I'm Isha Shah
 
 💻 AI & Machine Learning Student | Web Developer | Creative Tech Enthusiast
